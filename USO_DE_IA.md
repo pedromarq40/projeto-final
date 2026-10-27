@@ -1,0 +1,1 @@
+DIÁRIO DO USO DE IA 
